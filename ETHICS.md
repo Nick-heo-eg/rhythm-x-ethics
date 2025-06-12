@@ -1,4 +1,4 @@
-
+**Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International (CC BY-NC-SA 4.0)**
 # RHYTHM-X Code of Ethics (v1.1)
 
 ## 1. Foundational Philosophy: Ethics is Rhythmic Equilibrium  
